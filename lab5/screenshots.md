@@ -31,4 +31,6 @@
 <img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/1fb74b06-e8db-411a-80e6-74e9bc231b43">
 
 Custom Dashboard
+<img width="1162" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/dc0ecdcf-d8a2-4939-b25b-676ee55bd714">
+
 <img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/2bba0135-f221-4869-98b8-75f08656382d">
