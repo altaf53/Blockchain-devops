@@ -14,3 +14,19 @@
 
 <img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/a3a60fe8-4c1f-4afc-81f8-6d28848ddf2f">
 
+<img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/d2259e33-677c-4e52-a14f-6fcd84e20674">
+
+<img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/53ba41c4-b293-4660-bb28-ead66ac2cec6">
+
+<img width="1660" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/8e11bbf4-b125-44b2-82c4-72eab11eb51b">
+
+<img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/82482292-3c87-4eb7-9a1e-713dbabb790a">
+
+<img width="1678" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/bb1cb13e-9985-425a-8cea-8811ed91d40e">
+
+<img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/3af1b78b-8013-4404-ba9e-e1eddf5d4853">
+
+<img width="1679" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/60f30cb8-e263-4293-ac8b-ed80b6b02f17">
+
+<img width="1680" alt="image" src="https://github.com/altaf53/Blockchain-devops/assets/20583178/1fb74b06-e8db-411a-80e6-74e9bc231b43">
+
